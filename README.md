@@ -4,4 +4,4 @@ cant wati for beeeerrrrrr
 
 or white wine maybe?
 
-o damn but my nose is stuck... i hate when this happens 
+o damn but my nose is stuck... i hate when this happens. cant enjoys drinks like normal
